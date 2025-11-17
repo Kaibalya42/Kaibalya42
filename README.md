@@ -5,7 +5,7 @@
 
 - 🌱 I’m currently learning **Supervised Machine Learning**
 
-- 📫 How to reach me **kaibalyaofficial042@gmail.com**
+- 📫 How to reach me **nayakkaibalya021@gmail.com**
 
 - ⚡ Fun fact **I am funny😅**
 
